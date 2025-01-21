@@ -24,7 +24,7 @@ Hi! My name is Tasuboyz and I am a software developer with a passion for creatin
 
 ## **Contact Me**
 
-You can contact me by email at [tasuhiro.davide@gmail.com](mailto:tasuhiro.davide@gmail.com) or follow me on [LinkedIn](https://www.linkedin.com/in/tasuhiro-davide-kato-006570250/).
+You can contact me by telegram at [tasuboyz](https://t.me/tasuboyz) or follow me on [LinkedIn](https://www.linkedin.com/in/tasuhiro-davide-kato-006570250/).
 
 ## **Skills**
 
